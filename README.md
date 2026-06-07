@@ -1,0 +1,1 @@
+# egate-nitgoa-privacy-policy
